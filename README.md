@@ -1,0 +1,1 @@
+# KJV_Journal.privacy-policy
